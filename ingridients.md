@@ -1,0 +1,1 @@
+green tea, saffron, cinnamon, cloves, dried rose petals, cardamom, and almonds
